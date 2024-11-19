@@ -1,4 +1,4 @@
-Grass referral code: dxxPHABope2TOf4
+Airdrop Grass referral code: dxxPHABope2TOf4
 
 ​
 Sign up using the code for 5,000 bonus points for Grass once you hit 100 hrs of uptime + 35% boost on your points indefinitely!
